@@ -7,7 +7,7 @@
 <h2>💸 Risksiz Kazanmak İsteyenler İçin</h2>
 <p>Bizim güvencemiz ile hiç yatırım yapmadan kazanmak mümkün! <strong>Deneme bonusu veren siteler</strong> listesiyle ilk adımınızı ücretsiz atın. Anında kayıt olun, avantajları kaçırmayın!</p>
 
-<p><strong>Giriş bağlantısı:</strong> <a href="https://guvenillirsiteleriniz.com/" target="_blank" rel="noopener noreferrer">https://cutt.ly/xrj4lfeX</a></p>
+<p><strong>Giriş bağlantısı:</strong> <a href="https://guvenillirsiteleriniz.com/" target="_blank" rel="noopener noreferrer">https://guvenillirsiteleriniz.com/</a></p>
 
 <p>✨ Denemesi bedava, kazancı gerçek!</p>
 
