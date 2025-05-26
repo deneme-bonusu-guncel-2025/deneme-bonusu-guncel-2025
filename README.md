@@ -2,7 +2,7 @@
 
 <p align="center">
   <a href="https://guvenillirsiteleriniz.com/" target="_blank">
-    <img src="https://github.com/deneme-bonusu-guncel-2025/mayis/raw/main/banner.jpg" alt="Deneme Bonusu 2025 - Hemen Kazanmaya Başla" width="800">
+    <img src="https://github.com/deneme-bonusu-guncel-2025/deneme-bonusu-guncel-2025/blob/main/image.jpg" alt="Deneme Bonusu 2025 - Hemen Kazanmaya Başla" width="800">
   </a>
   <strong>Yatırım Yapmadan Kazanın! 2025’in En Güncel Deneme Bonusu Fırsatları</strong>
 </p>
